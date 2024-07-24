@@ -1,1 +1,0 @@
-# Newscorp_Training
